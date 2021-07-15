@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @HarshaSiriki
+- 👀 I’m interested in coding and learning new technologies
